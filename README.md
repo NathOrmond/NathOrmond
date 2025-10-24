@@ -32,4 +32,4 @@ These are just some personal areas of interest I read up on, publish on or go to
     - Countering Misinformation and Disinformation 
 
 ----- 
--  Feel free to reach out to me if you want to collaborate on something
+-  Feel free to reach out to me if you want to collaborate on something - I have my own company for contract / consultancy work
